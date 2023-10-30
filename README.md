@@ -1,2 +1,0 @@
-# imaotai.github.io
-imaotai
